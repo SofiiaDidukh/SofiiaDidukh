@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SofiiaDidukh and I am IT-recruiter
+- 👀 I’m interested in sport,travelling,looking new opportunities,IT of course.
+- 🌱 I’m currently learning new languages and cultures 
+- 💞️ I’m not looking for new collaboration
+- 📫 How to reach me - telegram @Sonya_Didukh
